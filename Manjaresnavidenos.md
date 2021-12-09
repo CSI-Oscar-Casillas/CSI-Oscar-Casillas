@@ -17,3 +17,6 @@
 ***1 1/2** tazas de agua
 ***1 1/2** tazas de arroz
 ***1 1/2** tazas de azucar
+
+### Procedimientos:
+1. 
